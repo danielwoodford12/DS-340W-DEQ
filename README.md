@@ -1,1 +1,1 @@
-# DS-430W-DEQ
+# DS-340W-DEQ
